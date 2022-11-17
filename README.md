@@ -3,8 +3,7 @@ Sms Log Call Log Apk App
 Forensic IT Services App 
 
 Kullanımı ve Çalışma Prensibi
-https://www.hizliresim.com/crzu73v
-[url=https://www.hizliresim.com/crzu73v][img]https://i.hizliresim.com/crzu73v.jpg[/img][/url]
+
 Detaylı Anlatım
 
 Uygulama 1 veya birden fazla amacı karşılamak üzere tasarlanmıştır. 

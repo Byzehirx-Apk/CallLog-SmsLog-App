@@ -10,6 +10,8 @@ Uygulama 1 veya birden fazla amacı karşılamak üzere tasarlanmıştır.
 
 Ben Size A,B ve C Bölüm ile Detayları Anlatayım 
 
+[alt text] (https://i.hizliresim.com/trmpxhn.jpg)
+
 A.Bölümü 
 
 SMS Mesaj Verileri
